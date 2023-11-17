@@ -1,1 +1,1 @@
-Hidup
+Hidup dulu ye kan
